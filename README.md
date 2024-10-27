@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kadlagnarendra20@gmail.com**
 
-- 📄 Know about my experiences [https://pratikjresume.tiiny.site](https://pratikjresume.tiiny.site)
+- 📄 Know about my experiences [https://narendraresume.tiiny.site](https://narendraresume.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
